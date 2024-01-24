@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ShadwaSheded
+- 🌱 I recently graduated from the Univerity of Houston with a degree in Computer Engineering Technology
